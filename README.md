@@ -1,4 +1,5 @@
-#![image](https://github.com/Fenrir-OwO/Fenrir-OwO/assets/65718379/42e0b721-cb59-471f-b95e-cd265add2f0e)
+![image](https://github.com/Fenrir-OwO/Fenrir-OwO/assets/65718379/fd3d20cc-6c06-4cfd-bea0-7b4b8d8d318a)
+
 
 
 
